@@ -97,8 +97,8 @@ To secure an **internship or entry-level position** where I can apply my program
 ---
 
 ## 📫 Contact
-- 📧 Email: your-email@gmail.com  
-- 💼 LinkedIn: https://linkedin.com/in/YOUR_LINKEDIN  
+- 📧 Email: veerendrakumarmogili@gmail.com  
+- 💼 LinkedIn: 
 
 ---
 
